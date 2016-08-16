@@ -41,7 +41,6 @@
 - Hinted that someone should shoot Hillary Clinton
 - Encouraged Russia to hack into Hillary Clinton's Secretary of State emails
 - Championed the Obama-birther movement, long after the issue was settled by the State of Hawaii
-- Lied about Muslims celebrating on 9/11
 - Instigated rumor that Ted Cruz' father helped assassinate JFK
 - Anchor-husband to his immigrant wife, who may have moved to America illegally
 

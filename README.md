@@ -6,7 +6,6 @@
 
 - Wants to fuck his daughter ([source](http://www.mediaite.com/online/donald-trump-wont-stop-joking-about-banging-his-daughter/))
 - Cheated on his first wife by sleeping with much younger woman, who became his second wife ([source](http://www.vanityfair.com/magazine/2015/07/donald-ivana-trump-divorce-prenup-marie-brenner))
-
 - Ex-wife claimed that he brutally raped her ([source](http://gawker.com/the-time-donald-trumps-ex-wife-accused-him-of-brutally-1721129617))
 - Department of Justice found guilty & fined him for not renting to black people ([source](http://www.thedailybeast.com/articles/2015/12/15/doj-trump-s-early-businesses-blocked-blacks.html))
 - Defends Roger Ailes' sexual harrassment charges ([source](http://www.thedailybeast.com/articles/2016/07/24/trump-s-indefensible-defense-of-roger-ailes-sexual-harassment.html))

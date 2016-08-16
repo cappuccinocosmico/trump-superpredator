@@ -22,13 +22,13 @@
 - Well documented record of taking the opposite stance on most of the issues he campaigns on now ([source](https://www.youtube.com/watch?v=rcUCLwWCihE))
 - Has been linked to the mafia for decades ([source](http://www.politifact.com/truth-o-meter/statements/2016/mar/02/ted-cruz/yes-donald-trump-has-been-linked-mob/))
 - Bragged about sleeping with other men's wives ([source](http://therightscoop.com/heres-when-trump-bragged-in-his-book-about-his-multiple-affairs-with-his-friends-wives/))
+- Under investigation for alleged fraudulent Trump University scam ([source](http://www.nationalreview.com/corner/432010/trump-university-scam))
 - Called Mexican immigrants rapists
 - Attacked mother of dead military hero, said she wasn't allowed to talk
 - Called John McCain a loser for getting captured and taken prisoner as a soldier
 - 3,500 outstanding lawusits against him from former business partners
 - Got in a fight with the Pope
 - Insinuated Megyn Kelly wasn't fit to host debate because she was on her period, after she called him out for previous on the record statements calling women "fat pigs," "slobs," and "disgusting animals"
-- Under investigation for alleged fraudulent Trump University scam
 - Said federal judge was unfit to try his case because he was Mexican
 - Called for the bombing of the families of suspected terrorists (a list which would include MLK and Nelson Mandela)
 - Praised infamous dictators Saddam Hussein, Putin, Mussolini

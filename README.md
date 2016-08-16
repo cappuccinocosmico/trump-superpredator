@@ -15,7 +15,7 @@
 - Insinuated Megyn Kelly wasn't fit to host debate because she was on her period, after she called him out for previous on the record statements calling women "fat pigs," "slobs," and "disgusting animals"
 - Under investigation for alleged fraudulent Trump University scam
 - Said federal judge was unfit to try his case because he was Mexican
-- Called for the bombing of the families of suspected terrorists (a list which included Martin Luther King Jr., and Nelson Mandela)
+- Called for the bombing of the families of suspected terrorists (a list which would include MLK and Nelson Mandela)
 - Praised infamous dictators Saddam Hussein, Putin, Mussolini
 - Defends Roger Ailes' sexual harrassment charges ([source](http://www.thedailybeast.com/articles/2016/07/24/trump-s-indefensible-defense-of-roger-ailes-sexual-harassment.html))
 - Gloats about abusing the rigged poltical system

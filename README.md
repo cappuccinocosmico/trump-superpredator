@@ -7,7 +7,7 @@
 - Bragged about sleeping with other men's wives
 - Ex-wife claimed that he brutally raped her ([source](http://gawker.com/the-time-donald-trumps-ex-wife-accused-him-of-brutally-1721129617))
 - Called Mexican immigrants rapists
-- Department of Justice found guilty & fined him for not renting to black people
+- Department of Justice found guilty & fined him for not renting to black people ([source](http://www.thedailybeast.com/articles/2015/12/15/doj-trump-s-early-businesses-blocked-blacks.html))
 - Attacked mother of dead military hero, said she wasn't allowed to talk
 - Called John McCain a loser for getting captured and taken prisoner as a soldier
 - 3,500 outstanding lawusits against him from former business partners
@@ -24,7 +24,7 @@
 - Encouraged endorsement from KKK wizard David Duke ([source](http://www.factcheck.org/2016/03/trumps-david-duke-amnesia/))
 - Claim to fame is firing people on TV, enjoys ruining their livelihoods
 - Told one woman on national TV that he'd rather see her on her knees ([source](https://www.youtube.com/watch?v=urReg9O6MwA))
-- Used Eminent Domain as corrupt government power to seize land from private citizens
+- Used Eminent Domain as corrupt government power to seize land from private citizens ([source](https://www.washingtonpost.com/news/volokh-conspiracy/wp/2015/08/19/donald-trumps-abuse-of-eminent-domain/))
 - Made much of his wealth from running gambling businesses
 - Trump-Pence original logo super suggestive of sodomy ([source](https://www.google.com/search?q=trump+pence+logo&tbm=isch))
 - Called for shooting Muslims with bullets dipped in pigs blood

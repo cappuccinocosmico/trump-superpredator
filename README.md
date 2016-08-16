@@ -18,6 +18,7 @@
 - Kept a book of Hitler's speeches next to his bed ([source](http://www.businessinsider.com/donald-trumps-ex-wife-once-said-he-kept-a-book-of-hitlers-speeches-by-his-bed-2015-8))
 - Well documented history of repeatedly lying ([source](http://www.politifact.com/personalities/donald-trump/))
 - Trump's own 12-year-old son shouted at him: "you just love your money" ([source](https://www.washingtonpost.com/news/morning-mix/wp/2016/03/04/donald-trump-jr-stumbles-out-of-fathers-shadow-and-into-the-spotlight-with-white-nationalist-interview/))
+- Well documented record of taking the opposite stance on most of the issues he campaigns on now ([source](https://www.youtube.com/watch?v=rcUCLwWCihE))
 - Bragged about sleeping with other men's wives
 - Called Mexican immigrants rapists
 - Attacked mother of dead military hero, said she wasn't allowed to talk

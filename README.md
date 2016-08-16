@@ -1,6 +1,6 @@
 # Donald Trump, Super Predator
 
-[Edit this document](https://github.com/dsernst/trump-superpredator/edit/master/README.md)
+[Edit this document](https://github.com/dsernst/trump-superpredator/edit/master/README.md), or [leave a comment](https://github.com/dsernst/trump-superpredator/issues/new)
 
 - Wants to fuck his daughter ([source](http://www.mediaite.com/online/donald-trump-wont-stop-joking-about-banging-his-daughter/))
 - Cheated on his first wife by sleeping with much younger woman, who became his second wife ([source](http://www.vanityfair.com/magazine/2015/07/donald-ivana-trump-divorce-prenup-marie-brenner))
@@ -39,4 +39,4 @@
 - Attacks outsourced labor while profiting from it ([source](http://www.pbs.org/newshour/making-sense/column-trumps-outrage-over-outsourcing-doesnt-apply-to-his-own-merchandise/))
 - Anchor-husband to his immigrant wife, who may have moved to America illegally
 
-[Edit this document](https://github.com/dsernst/trump-superpredator/edit/master/README.md)
+[Edit this document](https://github.com/dsernst/trump-superpredator/edit/master/README.md), or [leave a comment](https://github.com/dsernst/trump-superpredator/issues/new)

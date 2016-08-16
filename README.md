@@ -15,6 +15,7 @@
 - Used Eminent Domain as corrupt government power to seize land from private citizens ([source](https://www.washingtonpost.com/news/volokh-conspiracy/wp/2015/08/19/donald-trumps-abuse-of-eminent-domain/))
 - Trump-Pence original logo super suggestive of sodomy ([source](https://www.google.com/search?q=trump+pence+logo&tbm=isch))
 - Attacks outsourced labor while profiting from it ([source](http://www.pbs.org/newshour/making-sense/column-trumps-outrage-over-outsourcing-doesnt-apply-to-his-own-merchandise/))
+- Kept a book of Hitler's speeches next to his bed ([source](http://www.businessinsider.com/donald-trumps-ex-wife-once-said-he-kept-a-book-of-hitlers-speeches-by-his-bed-2015-8))
 - Bragged about sleeping with other men's wives
 - Called Mexican immigrants rapists
 - Attacked mother of dead military hero, said she wasn't allowed to talk

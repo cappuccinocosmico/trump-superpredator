@@ -1,5 +1,7 @@
 # Donald Trump, Super Predator
 
+Chronicling the many examples in which Donald Trump has acted like a terrifying person.
+
 [Edit this document](https://github.com/dsernst/trump-superpredator/edit/master/README.md), or [leave a comment](https://github.com/dsernst/trump-superpredator/issues/new)
 
 - Wants to fuck his daughter ([source](http://www.mediaite.com/online/donald-trump-wont-stop-joking-about-banging-his-daughter/))

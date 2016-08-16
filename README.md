@@ -20,6 +20,7 @@
 - Well documented history of repeatedly lying ([source](http://www.politifact.com/personalities/donald-trump/))
 - Trump's own 12-year-old son shouted at him: "you just love your money" ([source](https://www.washingtonpost.com/news/morning-mix/wp/2016/03/04/donald-trump-jr-stumbles-out-of-fathers-shadow-and-into-the-spotlight-with-white-nationalist-interview/))
 - Well documented record of taking the opposite stance on most of the issues he campaigns on now ([source](https://www.youtube.com/watch?v=rcUCLwWCihE))
+- Has been linked to the mafia for decades ([source](http://www.politifact.com/truth-o-meter/statements/2016/mar/02/ted-cruz/yes-donald-trump-has-been-linked-mob/))
 - Bragged about sleeping with other men's wives
 - Called Mexican immigrants rapists
 - Attacked mother of dead military hero, said she wasn't allowed to talk

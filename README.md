@@ -1,6 +1,6 @@
 # Donald Trump, Super Predator
 
-### Chronicling the many examples in which Donald Trump has acted like a terrifying person.
+### Chronicling the many examples in which Donald Trump has acted like a horrific person.
 
 [Edit this document](https://github.com/dsernst/trump-superpredator/edit/master/README.md), or [leave a comment](https://github.com/dsernst/trump-superpredator/issues/new)
 

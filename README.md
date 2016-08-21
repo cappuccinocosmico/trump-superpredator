@@ -5,8 +5,8 @@
 [Edit this document](https://github.com/dsernst/trump-superpredator/edit/master/README.md), or [leave a comment](https://github.com/dsernst/trump-superpredator/issues/new)
 
 - Wants to fuck his daughter ([source](http://www.mediaite.com/online/donald-trump-wont-stop-joking-about-banging-his-daughter/))
-- Cheated on his first wife by sleeping with much younger woman, who became his second wife ([source](http://www.vanityfair.com/magazine/2015/07/donald-ivana-trump-divorce-prenup-marie-brenner))
 - Ex-wife claimed that he brutally raped her ([source](http://gawker.com/the-time-donald-trumps-ex-wife-accused-him-of-brutally-1721129617))
+- Cheated on his first wife by sleeping with much younger woman ([source](http://www.vanityfair.com/magazine/2015/07/donald-ivana-trump-divorce-prenup-marie-brenner))
 - Department of Justice found guilty & fined him for not renting to black people ([source](http://www.thedailybeast.com/articles/2015/12/15/doj-trump-s-early-businesses-blocked-blacks.html))
 - Defends Roger Ailes' sexual harrassment charges ([source](http://www.thedailybeast.com/articles/2016/07/24/trump-s-indefensible-defense-of-roger-ailes-sexual-harassment.html))
 - Defended "Trump was right" men who peed on and broke ribs of sleeping homeless man in Boston ([source](https://www.bostonglobe.com/metro/2015/08/20/after-two-brothers-allegedly-beat-homeless-man-one-them-admiringly-quote-donald-trump-deporting-illegals/I4NXR3Dr7litLi2NB4f9TN/story.html))
@@ -30,7 +30,7 @@
 - Got in a fight with the Pope
 - Insinuated Megyn Kelly wasn't fit to host debate because she was on her period, after she called him out for previous on the record statements calling women "fat pigs," "slobs," and "disgusting animals"
 - Said federal judge was unfit to try his case because he was Mexican
-- Called for the bombing of the families of suspected terrorists (a list which would include MLK and Nelson Mandela)
+- Called for the bombing of the families of suspected terrorists
 - Praised infamous dictators Saddam Hussein, Putin, Mussolini
 - Gloats about abusing the rigged poltical system
 - Encouraged supporters to punch protestors, promised to pay legal fees

@@ -13,7 +13,7 @@
 - Encouraged endorsement from KKK wizard David Duke ([source](http://www.factcheck.org/2016/03/trumps-david-duke-amnesia/))
 - More than half of his retweets are white supremacists praising him ([source](http://nymag.com/selectall/2016/01/donald-trump-mostly-retweets-white-supremacists.html))
 - Told one woman on national TV that he'd rather see her on her knees ([source](https://www.youtube.com/watch?v=urReg9O6MwA))
-- Used Eminent Domain as corrupt government power to seize land from private citizens ([source](https://www.washingtonpost.com/news/volokh-conspiracy/wp/2015/08/19/donald-trumps-abuse-of-eminent-domain/))
+- Used Eminent Domain to seize land from private citizens ([source](https://www.washingtonpost.com/news/volokh-conspiracy/wp/2015/08/19/donald-trumps-abuse-of-eminent-domain/))
 - Trump-Pence original logo super suggestive of sodomy ([source](https://www.google.com/search?q=trump+pence+logo&tbm=isch))
 - Attacks outsourced labor while profiting from it ([source](http://www.pbs.org/newshour/making-sense/column-trumps-outrage-over-outsourcing-doesnt-apply-to-his-own-merchandise/))
 - Kept a book of Hitler's speeches next to his bed ([source](http://www.businessinsider.com/donald-trumps-ex-wife-once-said-he-kept-a-book-of-hitlers-speeches-by-his-bed-2015-8))

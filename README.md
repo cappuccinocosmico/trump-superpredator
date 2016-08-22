@@ -55,7 +55,6 @@
 - Defended "Trump was right" men who peed on and broke ribs of sleeping homeless man in Boston ([source](https://www.bostonglobe.com/metro/2015/08/20/after-two-brothers-allegedly-beat-homeless-man-one-them-admiringly-quote-donald-trump-deporting-illegals/I4NXR3Dr7litLi2NB4f9TN/story.html))
 - Trump's own 12-year-old son shouted at him: "you just love your money" ([source](https://www.washingtonpost.com/news/morning-mix/wp/2016/03/04/donald-trump-jr-stumbles-out-of-fathers-shadow-and-into-the-spotlight-with-white-nationalist-interview/))
 - Got in a fight with the Pope
-- Insinuated Megyn Kelly wasn't fit to host debate because she was on her period, after she called him out for previous on the record statements calling women "fat pigs," "slobs," and "disgusting animals"
 - Claim to fame is firing people on TV, enjoys ruining their livelihoods
 - Called for shooting Muslims with bullets dipped in pigs blood
 - Championed the Obama-birther movement, long after the issue was settled by the State of Hawaii
@@ -63,5 +62,8 @@
 - Made much of his wealth from running gambling businesses
 - If elected, he would be the first President to have made money off of a strip club
 
+#### General Misogyny:
+- Insinuated Megyn Kelly wasn't fit to host debate because she was on her period, after she called him out for previous on the record statements calling women "fat pigs," "slobs," and "disgusting animals" ([source](time.com/4198737/donald-trump-megyn-kelly-sexism/))
+- Said if Ivanka was getting sexually harrassed at work she should change jobs ([source](jezebel.com/trump-if-my-daughter-were-harassed-at-work-id-tell-he-1784677))
 
 [Help edit this document](https://github.com/dsernst/trump-superpredator/edit/master/README.md), or [leave a comment](https://github.com/dsernst/trump-superpredator/issues/new)

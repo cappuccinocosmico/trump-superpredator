@@ -17,7 +17,7 @@
 - Used Eminent Domain to seize land from private citizens ([source](https://www.washingtonpost.com/news/volokh-conspiracy/wp/2015/08/19/donald-trumps-abuse-of-eminent-domain/))
 - Kept a book of Hitler's speeches next to his bed ([source](http://www.businessinsider.com/donald-trumps-ex-wife-once-said-he-kept-a-book-of-hitlers-speeches-by-his-bed-2015-8))
 - Has been linked to the mafia for decades ([source](http://www.politifact.com/truth-o-meter/statements/2016/mar/02/ted-cruz/yes-donald-trump-has-been-linked-mob/))
-- Evidence that he's committed cronyism by promising political appointments for endorsements, a felony violation of election laws ([source](http://www.dailykos.com/story/2016/3/15/1501543/-Looks-Like-Trump-May-Have-Committed-a-Major-Electoral-Felony))
+- Committed cronyism by promising political appointments for endorsements, a felony violation of election laws ([source](http://www.dailykos.com/story/2016/3/15/1501543/-Looks-Like-Trump-May-Have-Committed-a-Major-Electoral-Felony))
 - Failed to pay $30 million in taxes for casinos in NJ, appeared to receive special treatment from Chris Christie ([source](http://www.nytimes.com/2016/08/17/us/politics/trump-chris-christie-casinos.html))
 - Called for the bombing of the families of suspected terrorists
 - Praised infamous dictators Saddam Hussein, Putin, Mussolini

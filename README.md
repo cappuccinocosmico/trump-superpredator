@@ -2,7 +2,7 @@
 
 ### Chronicling the many examples in which Donald Trump has acted like a horrific person.
 
-[Edit this document](https://github.com/dsernst/trump-superpredator/edit/master/README.md), or [leave a comment](https://github.com/dsernst/trump-superpredator/issues/new)
+[Help edit this document](https://github.com/dsernst/trump-superpredator/edit/master/README.md), or [leave a comment](https://github.com/dsernst/trump-superpredator/issues/new)
 
 #### Sexual Predator:
 - Jokes about fucking his own daughter ([source](http://www.mediaite.com/online/donald-trump-wont-stop-joking-about-banging-his-daughter/))
@@ -65,4 +65,4 @@
 - Donald Trump would be the first President to have made money off of a strip club
 
 
-[Edit this document](https://github.com/dsernst/trump-superpredator/edit/master/README.md), or [leave a comment](https://github.com/dsernst/trump-superpredator/issues/new)
+[Help edit this document](https://github.com/dsernst/trump-superpredator/edit/master/README.md), or [leave a comment](https://github.com/dsernst/trump-superpredator/issues/new)

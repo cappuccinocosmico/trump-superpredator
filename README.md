@@ -30,7 +30,7 @@
 - Under investigation for alleged fraudulent Trump University scam ([source](http://www.nationalreview.com/corner/432010/trump-university-scam))
 - Well documented record of taking the opposite stance on most of the issues he campaigns on now ([source](https://www.youtube.com/watch?v=rcUCLwWCihE))
 - Trump Network and ACN, two of Trump's failed ventures, have been classic pyramid schemes ([source](http://www.nationalreview.com/article/432468/donald-trump-networks-failure-harmed-small-investors))
-- 3,500 outstanding lawusits against him from former business partners
+- 3,500 outstanding lawsuits against him from former business partners
 - Very deceptive about net worth, refuses to publish tax returns, unlike all other candidates
 
 #### Blatant Rascism:

@@ -62,7 +62,7 @@
 - Championed the Obama-birther movement, long after the issue was settled by the State of Hawaii
 - Instigated rumor that Ted Cruz' father helped assassinate JFK
 - Made much of his wealth from running gambling businesses
-- Donald Trump would be the first President to have made money off of a strip club
+- If elected, he would be the first President to have made money off of a strip club
 
 
 [Help edit this document](https://github.com/dsernst/trump-superpredator/edit/master/README.md), or [leave a comment](https://github.com/dsernst/trump-superpredator/issues/new)

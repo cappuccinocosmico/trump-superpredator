@@ -23,6 +23,10 @@
 - Has been linked to the mafia for decades ([source](http://www.politifact.com/truth-o-meter/statements/2016/mar/02/ted-cruz/yes-donald-trump-has-been-linked-mob/))
 - Bragged about sleeping with other men's wives ([source](http://therightscoop.com/heres-when-trump-bragged-in-his-book-about-his-multiple-affairs-with-his-friends-wives/))
 - Under investigation for alleged fraudulent Trump University scam ([source](http://www.nationalreview.com/corner/432010/trump-university-scam))
+- Trump Network and ACN, two of Trump's failed ventures, have been classic pyramid schemes ([source](http://www.nationalreview.com/article/432468/donald-trump-networks-failure-harmed-small-investors))
+- Hires foreign workers over American workers for the Trump Organization ([source](http://www.nationalreview.com/article/431933/donald-trump-foreign-workers-american-workers-arent-good-enough))
+- Evidence that he's committed cronyism by promising political appointments for endorsements, a felony violation of election laws ([source](http://www.dailykos.com/story/2016/3/15/1501543/-Looks-Like-Trump-May-Have-Committed-a-Major-Electoral-Felony))
+- Failed to pay $30 million in taxes for casinos in NJ, appeared to receive special treatment from Chris Christie ([source](http://www.nytimes.com/2016/08/17/us/politics/trump-chris-christie-casinos.html))
 - Called Mexican immigrants rapists
 - Attacked mother of dead military hero, said she wasn't allowed to talk
 - Called John McCain a loser for getting captured and taken prisoner as a soldier
@@ -45,5 +49,6 @@
 - Championed the Obama-birther movement, long after the issue was settled by the State of Hawaii
 - Instigated rumor that Ted Cruz' father helped assassinate JFK
 - Anchor-husband to his immigrant wife, who may have moved to America illegally
+- Donald Trump would be the first President to have made money off of a strip club
 
 [Edit this document](https://github.com/dsernst/trump-superpredator/edit/master/README.md), or [leave a comment](https://github.com/dsernst/trump-superpredator/issues/new)

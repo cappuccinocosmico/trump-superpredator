@@ -5,7 +5,7 @@
 [Edit this document](https://github.com/dsernst/trump-superpredator/edit/master/README.md), or [leave a comment](https://github.com/dsernst/trump-superpredator/issues/new)
 
 #### Sexual Predator:
-- Wants to fuck his daughter ([source](http://www.mediaite.com/online/donald-trump-wont-stop-joking-about-banging-his-daughter/))
+- Jokes about fucking his own daughter ([source](http://www.mediaite.com/online/donald-trump-wont-stop-joking-about-banging-his-daughter/))
 - Ex-wife claimed that he brutally raped her ([source](http://gawker.com/the-time-donald-trumps-ex-wife-accused-him-of-brutally-1721129617))
 - Cheated on his first wife by sleeping with much younger woman ([source](http://www.vanityfair.com/magazine/2015/07/donald-ivana-trump-divorce-prenup-marie-brenner))
 - Defends Roger Ailes' sexual harrassment charges ([source](http://www.thedailybeast.com/articles/2016/07/24/trump-s-indefensible-defense-of-roger-ailes-sexual-harassment.html))

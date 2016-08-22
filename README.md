@@ -13,13 +13,6 @@
 - Bragged about sleeping with other men's wives ([source](http://therightscoop.com/heres-when-trump-bragged-in-his-book-about-his-multiple-affairs-with-his-friends-wives/))
 - Trump-Pence original logo super suggestive of sodomy ([source](https://www.google.com/search?q=trump+pence+logo&tbm=isch))
 
-#### Blatant Rascism:
-- Department of Justice found guilty & fined him for not renting to black people ([source](http://www.thedailybeast.com/articles/2015/12/15/doj-trump-s-early-businesses-blocked-blacks.html))
-- Encouraged endorsement from KKK wizard David Duke ([source](http://www.factcheck.org/2016/03/trumps-david-duke-amnesia/))
-- More than half of his retweets are white supremacists praising him ([source](http://nymag.com/selectall/2016/01/donald-trump-mostly-retweets-white-supremacists.html))
-- Called Mexican immigrants rapists
-- Said federal judge was unfit to try his case because he was Mexican
-
 #### Dictatorial:
 - Used Eminent Domain to seize land from private citizens ([source](https://www.washingtonpost.com/news/volokh-conspiracy/wp/2015/08/19/donald-trumps-abuse-of-eminent-domain/))
 - Kept a book of Hitler's speeches next to his bed ([source](http://www.businessinsider.com/donald-trumps-ex-wife-once-said-he-kept-a-book-of-hitlers-speeches-by-his-bed-2015-8))
@@ -39,6 +32,13 @@
 - Trump Network and ACN, two of Trump's failed ventures, have been classic pyramid schemes ([source](http://www.nationalreview.com/article/432468/donald-trump-networks-failure-harmed-small-investors))
 - 3,500 outstanding lawusits against him from former business partners
 - Very deceptive about net worth, refuses to publish tax returns, unlike all other candidates
+
+#### Blatant Rascism:
+- Department of Justice found guilty & fined him for not renting to black people ([source](http://www.thedailybeast.com/articles/2015/12/15/doj-trump-s-early-businesses-blocked-blacks.html))
+- Encouraged endorsement from KKK wizard David Duke ([source](http://www.factcheck.org/2016/03/trumps-david-duke-amnesia/))
+- More than half of his retweets are white supremacists praising him ([source](http://nymag.com/selectall/2016/01/donald-trump-mostly-retweets-white-supremacists.html))
+- Called Mexican immigrants rapists
+- Said federal judge was unfit to try his case because he was Mexican
 
 #### Hypocrisy:
 - Attacks outsourced labor while profiting from it ([source](http://www.pbs.org/newshour/making-sense/column-trumps-outrage-over-outsourcing-doesnt-apply-to-his-own-merchandise/))

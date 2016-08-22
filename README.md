@@ -11,7 +11,6 @@
 - Defends Roger Ailes' sexual harrassment charges ([source](http://www.thedailybeast.com/articles/2016/07/24/trump-s-indefensible-defense-of-roger-ailes-sexual-harassment.html))
 - Told one woman on national TV that he'd rather see her on her knees ([source](https://www.youtube.com/watch?v=urReg9O6MwA))
 - Bragged about sleeping with other men's wives ([source](http://therightscoop.com/heres-when-trump-bragged-in-his-book-about-his-multiple-affairs-with-his-friends-wives/))
-- Trump-Pence original logo super suggestive of sodomy ([source](https://www.google.com/search?q=trump+pence+logo&tbm=isch))
 
 #### Dictatorial:
 - Used Eminent Domain to seize land from private citizens ([source](https://www.washingtonpost.com/news/volokh-conspiracy/wp/2015/08/19/donald-trumps-abuse-of-eminent-domain/))

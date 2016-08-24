@@ -11,13 +11,14 @@
 - Defends Roger Ailes' sexual harrassment charges ([source](http://www.thedailybeast.com/articles/2016/07/24/trump-s-indefensible-defense-of-roger-ailes-sexual-harassment.html))
 - Told one woman on national TV that he'd rather see her on her knees ([source](https://www.youtube.com/watch?v=urReg9O6MwA))
 - Bragged about sleeping with other men's wives ([source](http://therightscoop.com/heres-when-trump-bragged-in-his-book-about-his-multiple-affairs-with-his-friends-wives/))
+- If elected, he would be the first President to have made money off of a strip club
 
 #### Dictatorial:
 - Used Eminent Domain to seize land from private citizens ([source](https://www.washingtonpost.com/news/volokh-conspiracy/wp/2015/08/19/donald-trumps-abuse-of-eminent-domain/))
-- Kept a book of Hitler's speeches next to his bed ([source](http://www.businessinsider.com/donald-trumps-ex-wife-once-said-he-kept-a-book-of-hitlers-speeches-by-his-bed-2015-8))
 - Has been linked to the mafia for decades ([source](http://www.politifact.com/truth-o-meter/statements/2016/mar/02/ted-cruz/yes-donald-trump-has-been-linked-mob/))
 - Committed cronyism by promising political appointments for endorsements, a felony violation of election laws ([source](http://www.dailykos.com/story/2016/3/15/1501543/-Looks-Like-Trump-May-Have-Committed-a-Major-Electoral-Felony))
 - Failed to pay $30 million in taxes for casinos in NJ, appeared to receive special treatment from Chris Christie ([source](http://www.nytimes.com/2016/08/17/us/politics/trump-chris-christie-casinos.html))
+- Kept a book of Hitler's speeches next to his bed ([source](http://www.businessinsider.com/donald-trumps-ex-wife-once-said-he-kept-a-book-of-hitlers-speeches-by-his-bed-2015-8))
 - Called for the bombing of the families of suspected terrorists
 - Praised infamous dictators Saddam Hussein, Putin, Mussolini
 - Gloats about abusing the rigged poltical system
@@ -25,9 +26,9 @@
 - Hinted that someone should shoot Hillary Clinton
 
 #### History of Fraud:
+- Well documented record of taking the opposite stance on most of the issues he campaigns on now ([source](https://www.youtube.com/watch?v=rcUCLwWCihE))
 - Well documented history of repeatedly lying ([source](http://www.politifact.com/personalities/donald-trump/))
 - Under investigation for alleged fraudulent Trump University scam ([source](http://www.nationalreview.com/corner/432010/trump-university-scam))
-- Well documented record of taking the opposite stance on most of the issues he campaigns on now ([source](https://www.youtube.com/watch?v=rcUCLwWCihE))
 - Trump Network and ACN, two of Trump's failed ventures, have been classic pyramid schemes ([source](http://www.nationalreview.com/article/432468/donald-trump-networks-failure-harmed-small-investors))
 - 3,500 outstanding lawsuits against him from former business partners
 - Very deceptive about net worth, refuses to publish tax returns, unlike all other candidates
@@ -60,7 +61,6 @@
 - Championed the Obama-birther movement, long after the issue was settled by the State of Hawaii
 - Instigated rumor that Ted Cruz' father helped assassinate JFK
 - Made much of his wealth from running gambling businesses
-- If elected, he would be the first President to have made money off of a strip club
 
 #### General Misogyny:
 - Insinuated Megyn Kelly wasn't fit to host debate because she was on her period, after she called him out for previous on the record statements calling women "fat pigs," "slobs," and "disgusting animals" ([source](time.com/4198737/donald-trump-megyn-kelly-sexism/))

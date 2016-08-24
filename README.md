@@ -11,7 +11,7 @@
 - Defends Roger Ailes' sexual harrassment charges ([source](http://www.thedailybeast.com/articles/2016/07/24/trump-s-indefensible-defense-of-roger-ailes-sexual-harassment.html))
 - Told one woman on national TV that he'd rather see her on her knees ([source](https://www.youtube.com/watch?v=urReg9O6MwA))
 - Bragged about sleeping with other men's wives ([source](http://therightscoop.com/heres-when-trump-bragged-in-his-book-about-his-multiple-affairs-with-his-friends-wives/))
-- If elected, he would be the first President to have made money off of a strip club
+- If elected, he would be the first President to have made money off of a strip club ([source](http://townhall.com/columnists/rebeccahagelin/2016/02/28/meet-donald-trump-the-king-of-sleaze-n2126157))
 
 #### Dictatorial:
 - Used Eminent Domain to seize land from private citizens ([source](https://www.washingtonpost.com/news/volokh-conspiracy/wp/2015/08/19/donald-trumps-abuse-of-eminent-domain/))
@@ -19,11 +19,11 @@
 - Committed cronyism by promising political appointments for endorsements, a felony violation of election laws ([source](http://www.dailykos.com/story/2016/3/15/1501543/-Looks-Like-Trump-May-Have-Committed-a-Major-Electoral-Felony))
 - Failed to pay $30 million in taxes for casinos in NJ, appeared to receive special treatment from Chris Christie ([source](http://www.nytimes.com/2016/08/17/us/politics/trump-chris-christie-casinos.html))
 - Kept a book of Hitler's speeches next to his bed ([source](http://www.businessinsider.com/donald-trumps-ex-wife-once-said-he-kept-a-book-of-hitlers-speeches-by-his-bed-2015-8))
-- Called for the bombing of the families of suspected terrorists
-- Praised infamous dictators Saddam Hussein, Putin, Mussolini
-- Gloats about abusing the rigged poltical system
-- Encouraged supporters to punch protestors, promised to pay legal fees
-- Hinted that someone should shoot Hillary Clinton
+- Called for the killing of the families of suspected terrorists, violating Geneva Convention ([source](http://www.politifact.com/truth-o-meter/statements/2015/dec/17/rand-paul/rand-pauls-right-geneva-conventions-bar-donald-tru/))
+- Praised infamous dictators Saddam Hussein, Putin, Mussolini, Kim Jung Un, Gadhafi ([source](http://www.nbcnews.com/politics/2016-election/donald-trump-s-history-praising-dictators-n604801))
+- Gloats about abusing the rigged poltical system ([source](http://www.nationalreview.com/article/430266/donald-trump-bribery-politicians-hillary-clinton-robert-menendez-solomon-melgen))
+- Encouraged supporters to punch protestors, promised to pay legal fees ([source](http://www.huffingtonpost.com/kicker/oh-yes-donald-trump-defin_b_9461016.html))
+- Hinted that someone should shoot Hillary Clinton ([source](https://www.theguardian.com/us-news/2016/aug/09/trump-gun-owners-clinton-judges-second-amendment))
 
 #### History of Fraud:
 - Well documented record of taking the opposite stance on most of the issues he campaigns on now ([source](https://www.youtube.com/watch?v=rcUCLwWCihE))
